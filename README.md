@@ -1,0 +1,2 @@
+# outcompete
+for apple academy
